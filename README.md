@@ -1,1 +1,0 @@
-# sierraquitiquit.github.io
